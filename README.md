@@ -1,1 +1,1 @@
-"# pandora" Hello Pandora
+"# pandora" Mimosa Samosa
